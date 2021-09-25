@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1.Daniel Hutňan
-2.
+2.Nikola Kulikova
 3.
 4.
 
