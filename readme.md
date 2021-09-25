@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1.Daniel Hutňan
 2.Nikola Kulikova
-3.
+3.Nina Klačková
 4.
 
